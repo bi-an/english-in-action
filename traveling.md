@@ -38,3 +38,6 @@ You can't just go to the train station and book the ticket there. I mean, you co
 - to get through today 熬过/撑过今天
 - I need coffee to **function**. 我需要咖啡才能正常运转/工作.
 - I can't **get through the day** without caffeine.
+
+an **inclusive** tour 费用全包的旅行
+be inclusive of sth 包含……的费用

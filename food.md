@@ -9,3 +9,5 @@ macoroni balado 巴拉多通心粉
 - sambal 桑巴酱 / 三巴酱，东南亚特制辣椒酱。
 - 印尼语法是“中心语 + 修饰词”，所以 balado 写在 macoroni 后面，表示 balado 口味的通心粉。
 pasta 意大利面
+reservation 预定，保留
+- make a reservation 订座/房
