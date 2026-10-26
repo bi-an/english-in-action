@@ -4,22 +4,22 @@
 
 ## 台词
 
-Phoenix turned and fired twice, the 34 millimetre bullets spitting through the air and splintering the brickwork two inches to the left of the Russia thug's shoulder. A moment later came the reply of the Uzi semiautomatic and Phoenix twisted round. 菲尼克斯转身开了两枪，34毫米的子弹在空中喷射，将俄罗斯暴徒肩膀左侧两英寸砖墙击碎。过一会儿，乌兹半自动冲锋枪回应了，菲尼克斯扭过身来。
+Phoenix turned and fired twice, the 34 millimeters bullets **spitting through** the air and **splintering** the **brickwork** two inches to the left of the Russia **thug**'s shoulder. A moment later came the reply of the Uzi **semiautomatic** and Phoenix **twisted round**. 菲尼克斯转身开了两枪，34毫米的子弹在空中喷射，将俄罗斯暴徒肩膀左侧两英寸砖墙击碎。过一会儿，乌兹半自动冲锋枪回应了，菲尼克斯扭过身来。
 
-Her lips, searching in the sapphire, honeyscented darkness, found his; cool, forceful, unresisting, and as the frozen waves crashed down. 当冰冷、有力、不可抗拒的浪汹涌而下的时候，她的嘴唇在蓝宝石般散发着蜜香的夜色中寻找，找到了他的嘴唇。
+Her lips, searching in the **sapphire**, **honey-scented** darkness, found his; cool, forceful, **unresisting**, and as the frozen waves **crashed down**. 当冰冷、有力、不可抗拒的浪汹涌而下的时候，她的嘴唇在蓝宝石般散发着蜜香的夜色中寻找，找到了他的嘴唇。
 
 -Got your meeting, have you? 你要去开会，对吗？
 -Yes, I'm on my way. 是的，我正在去。
 
-He pulled her towards him, his powerful, masculine hands tearing at the silk faric of her Gaultier nightshirt.
+He pulled her towards him, his powerful, masculine hands tearing at the silk fabric of her Gaultier nightshirt.
 
-The repetitive beat of the innercity drum.
+The repetitive beat of the **inner-city** drum. 老城区/贫民区
 
 1887, Sebastian Lyddiard, greatgrandson of Herbert Lyddiard, who served under Sir John Jervis against Napoleon. 对抗拿破仑。
 
-The Right Honourable William Lyddiard. 威廉·利迪亚德阁下。
+The Right Honorable William Lyddiard. 威廉·利迪亚德阁下。
 
--Do you ever regret marrying hime, Amy? I wonder if you ever think that but for you he might still be alive? 你后悔嫁给他吗，埃米？我不知道你是否想过，如果不是因为你，他可能现在还活着？
+-Do you ever regret marrying him, Amy? I wonder if you ever think that but for you he might still be alive? 你后悔嫁给他吗，埃米？我不知道你是否想过，如果不是因为你，他可能现在还活着？
 -(Amy) No. 没有想过。
 -Well I do. 我想过。
 
