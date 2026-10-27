@@ -41,3 +41,5 @@ You can't just go to the train station and book the ticket there. I mean, you co
 
 an **inclusive** tour 费用全包的旅行
 be inclusive of sth 包含……的费用
+
+Bromo 布罗莫火山，位于印尼东爪哇省（East Java），是印尼最著名、最活跃的活火山之一，全球知名旅游胜地。
