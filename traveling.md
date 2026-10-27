@@ -1,8 +1,8 @@
 - stuff can happen. 什么事情都可能发生；世事难料。
-You know, in every country, **stuff can happen**. But in China, I felt specifically saft. I never felt this safe in my life.
+You know, in every country, **stuff can happen**. But in China, I felt specifically safe. I never felt this safe in my life.
 
 - **This is just a theory**. But I think maybe some Chinese man looks at Western woman more open minded. So **there may be hinting to like going to your hotel room**, for like, a "one night thing". You know what I mean. So, yes, maybe be a little bit cautious with who you add on WeChat.
-中间的表达很规范，缺少主语，there 应该为 they。其中 like 是口语垫语，going 也错误。该句是口语中常见的乱用。尾句中的 who 应该为 whom。
+中间的表达很不规范，缺少主语，there 应该为 they。其中 like 是口语垫语，going 也错误，应该是 go 。该句是口语中常见的乱用。尾句中的 who 应该为 whom。
 
 - hospitable 好客的
 - pride 自豪
