@@ -11,3 +11,5 @@ macoroni balado 巴拉多通心粉
 pasta 意大利面
 reservation 预定，保留
 - make a reservation 订座/房
+matcha 抹茶
+milk tea 奶茶
