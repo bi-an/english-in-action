@@ -22,4 +22,7 @@ Penny想要气气Sheldon，她故意把ken曲解成玩偶，说：你的ken可�
 14. stumble over my words 我说话磕磕绊绊
 15. stutter 口吃
 16. I can’t make you out 我听不清你说话
-17. I can’t hear you clearly 
+17. I can’t hear you clearly
+18. It’s not a big deal
+19. Don’t sweat the small stuff. 别为这些小事紧张
+20. Details, details 1. 哎呀，说说细节嘛！2. 不要在意这些细节。
