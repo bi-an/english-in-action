@@ -10,3 +10,9 @@ go viral 流行，刷屏，疯传，火了
 - viral 病毒式的
 - viral video 爆火视频
 - viral post 爆火帖子
+IP merchandise 周边，可简写为 merch
+merchandise 商品
+IP-related goods / IP derivatives
+derivative 衍生品
+anime derivatives 动漫衍生品
+financial derivatives 金融衍生品
