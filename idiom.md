@@ -26,3 +26,4 @@ Penny想要气气Sheldon，她故意把ken曲解成玩偶，说：你的ken可�
 18. It’s not a big deal
 19. Don’t sweat the small stuff. 别为这些小事紧张
 20. Details, details 1. 哎呀，说说细节嘛！2. 不要在意这些细节。
+21. Just a heads-up. 提前提醒一下. heads up (抬起头来,注意看球过来了)小心
