@@ -16,3 +16,5 @@ IP-related goods / IP derivatives
 derivative 衍生品
 anime derivatives 动漫衍生品
 financial derivatives 金融衍生品
+rap 说唱。rap 本义是轻敲、轻叩，源自拟声词。
+RnB Rhythm and Blues 节奏布鲁斯；布鲁斯本来是蓝调，节奏布鲁斯节奏更快
