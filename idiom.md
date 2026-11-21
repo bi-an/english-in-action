@@ -26,4 +26,11 @@ Penny想要气气Sheldon，她故意把ken曲解成玩偶，说：你的ken可�
 18. It’s not a big deal
 19. Don’t sweat the small stuff. 别为这些小事紧张
 20. Details, details 1. 哎呀，说说细节嘛！2. 不要在意这些细节。
-21. Just a heads-up. 提前提醒一下. heads up (抬起头来,注意看球过来了)小心
+21. Just a heads-up. 提前提醒一下。 heads up （抬起头来,注意看球过来了）小心
+22. He is the boss' **right-hand man**. 他是领导的左右手
+23. set on sb 突然围攻某人
+	- Three men set on him in the street.
+	- The dogs suddenly set on the stranger.
+	- He told her how the boys in East Poldown had set on him, teasing him.
+		- had set 表示过去完成时
+		- teasing 现在分词短语，起补充说明作用。可以理解为：He told her how the boys had set on him, while teasing him. 他告诉她, 他们是怎么一边嘲笑他、一边围攻他的。
