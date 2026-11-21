@@ -1,0 +1,3 @@
+Happy birthday xxx!!
+I'm really glad I got to know you. I hope this new chapter of your life brings you lots of happiness, good health, success and beautiful opportunities. May everything you've been working hard for slowly fall into place and may life be kinder and better to you. Don't forget to take care of yourself, enjoy every moment and keep smiling. You deserve all the good things in life. Keep being the wonderful person you are! 😻🙌🏻🥳
+-- Wirdha
