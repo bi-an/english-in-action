@@ -1,0 +1,1 @@
+power outlets 插座
